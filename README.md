@@ -1,2 +1,2 @@
-# Teste-Primeira-Alteração de status de hetero para homo 
+# Teste-Primeira-Alteração de status do sabão ipe para omo 
 #Teste
